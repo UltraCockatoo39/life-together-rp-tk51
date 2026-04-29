@@ -1,4 +1,4 @@
-
+vip Script for life together rp offers the most advanced life together rp Script, with auto-heal and auto-sell. Perfect for dominating any match.
 
 
 
